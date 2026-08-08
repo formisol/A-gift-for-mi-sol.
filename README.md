@@ -6,6 +6,7 @@
 
 # ✦ for my favourite person ✦
 <img width="250" height="213" alt="IMG_3671" src="https://github.com/user-attachments/assets/4909ad96-3350-43fe-bbaf-3a5dbdf786a4" />
+
 ### I love you so much ♡
 
 ──────────── ⋆⋅☆⋅⋆ ────────────
