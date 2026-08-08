@@ -4,7 +4,7 @@
 <img width="640" height="192" alt="IMG_3666" src="https://github.com/user-attachments/assets/8706253e-1cf3-447d-bb8f-027d23ba08c0" />
  
 
-# ✦ for my favorite person ✦
+# ✦ for my favourite person ✦
 
 ### I love you so much ♡
 
@@ -14,9 +14,9 @@ hey love,
 
 i made this little corner of github as a gift for you.  
 
-every line of code, every idea, and every late night spent creating it  
+every line of code, every idea,   
 
-was done while thinking about you.
+it was done while thinking about you.
 
 thank you for making my days brighter,  
 
@@ -30,7 +30,7 @@ you mean more to me than i can put into words.
 
 ### things i love about you
 
-♡ your smile  
+♡ your smile - I love how you s 
 
 ♡ your voice  
 
@@ -60,6 +60,7 @@ forever yours,
 
 **eli ♡**
 
-<img src="bottom-divider.png" width="100%"/>
+<img width="640" height="192" alt="IMG_3667" src="https://github.com/user-attachments/assets/dd4160bf-fe30-4f43-9cc7-b62f76978ba4" />
+
 
 </div>
