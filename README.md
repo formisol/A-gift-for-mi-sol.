@@ -45,6 +45,9 @@ you mean more to me than I can put into words.
 
 ♡ simply being with you
 
+<img width="1280" height="384" alt="IMG_3669" src="https://github.com/user-attachments/assets/e82fa6c5-41af-43fa-80f5-40fae8c8d215" />
+
+
 ──────────── ⋆⋅☆⋅⋆ ────────────
 
 ### a small promise
