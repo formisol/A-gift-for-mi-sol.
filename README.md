@@ -1,8 +1,8 @@
 # A-gift-for-mi-sol.
 <div align="center">
 
-<img src=<img width="640" height="192" alt="IMG_3666" src="https://github.com/user-attachments/assets/8706253e-1cf3-447d-bb8f-027d23ba08c0" />
- width="100%"/>
+<img width="640" height="192" alt="IMG_3666" src="https://github.com/user-attachments/assets/8706253e-1cf3-447d-bb8f-027d23ba08c0" />
+ 
 
 # ✦ for my favorite person ✦
 
