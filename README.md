@@ -40,11 +40,11 @@ you mean more to me than I can put into words.
 
 ♡ your laugh - I love your adorable laugh, the way I know that when you laugh, it is genuine. 
 
-♡ the way you care about people  
+♡ the way you care about people - I love the way you care so deeply about others, though irene knows it makes me so jealous. But in a way, I love being able to get jealous
 
-♡ the way you make me feel safe  
+♡ the way you make me feel safe - I love the warmth of your presence and how amazing it feels to be around you. You make me feel so safe that it is almost unreal. I would not trade that for the world  
 
-♡ simply being with you
+♡ simply being with you. - I love being around you, just that alone is the best.
 
 <img width="1280" height="256" alt="IMG_3670" src="https://github.com/user-attachments/assets/7131f245-65b9-4ac0-96dd-485b3ec8f962" />
 
