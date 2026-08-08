@@ -26,6 +26,9 @@ and for being the person I always want to share things with.
 
 you mean more to me than I can put into words.
 
+<img width="1280" height="256" alt="IMG_3668" src="https://github.com/user-attachments/assets/8d8727cb-4381-422a-8363-5c8aad236564" />
+
+
 ──────────── ⋆⋅☆⋅⋆ ────────────
 
 ### things I love about you:
